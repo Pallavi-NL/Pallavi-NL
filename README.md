@@ -1,5 +1,5 @@
 # Hi, I’m Pallavi! 👋
-I’m a final year Computer Science student at Alliance University.
+I’m a final year Computer Science student at Alliance University, Banglore.
 
 I’m a multidisciplinary tech enthusiast passionate about:
 
