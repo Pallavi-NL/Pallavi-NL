@@ -12,3 +12,5 @@ I love exploring new technologies and combining them to solve real-world problem
 Check out my diverse projects across analytics, design, and AI — all aimed at creating meaningful impact.
 
 Let’s connect, collaborate, and create together!
+Mail- nlpallavi21@gmail.com
+LinkedIn- [LinkedIn] (https://www.linkedin.com/in/pallavi-n-l)
